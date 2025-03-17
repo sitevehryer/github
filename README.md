@@ -6,3 +6,4 @@
 ![bb771849ad8a9c862e2f6952321b52ad](https://github.com/user-attachments/assets/5d619dc2-d313-4859-ac88-9b1bfa0015ee)
 ![edit toucan-nature-jungle](https://github.com/user-attachments/assets/4aa95fbb-d2f0-4be2-acb2-831fd2996a84)
 ![j8hbb01l56y91](https://github.com/user-attachments/assets/b04de7cc-bd5d-41df-b334-87b925ae1563)
+![John_Bauer_1915](https://github.com/user-attachments/assets/e71baa51-ad36-42aa-a225-b46f6b1c850a)
